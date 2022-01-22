@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @brinssi28
-- 👀 I’m statistical engineer and data analysis in 
+- 👀 I’m statistical engineer and data analysis 
 - 🌱 I’m currently forging my skills in this field 
 - 💞️ I’m looking to improve my knowledge 
 - 📫 How to reach me Alaaedinbrinssi28@gmail.com 
